@@ -1,4 +1,4 @@
-# 
+# رسمي dexscreener sniper bot إضافات لـ Mac OS | فوري dexscreener sniper bot إضافات لـ PC Windows. مع اكتشاف السحب و استعادة المعاملات الفاشلة — مُحسَّن لأقصى أداء على جميع المنصات.
 
 
 
